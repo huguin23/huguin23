@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil :blue_heart
+### Boas vindas ao meu perfil 🚯
 
 Meu nome é Hugo Ribeiro
 
